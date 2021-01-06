@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to savagedoodville
 
-I'm glad you are here. I plan to talk about ...
+I love to play LoL.
